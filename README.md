@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DoinYourmom69420
 - 👀 I’m interested in doin your mom
-- 🌱 I’m currently learning how to do you mom
+- 🌱 I’m currently learning how to do your mom
 - 💞️ I’m looking to collaborate on doin your mom
 - 📫 How to reach me you can't because im doin your mom
 
